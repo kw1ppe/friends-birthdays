@@ -1,1 +1,1 @@
-https://kw1ppe.github.io/my-birthdays/
+https://kw1ppe.github.io/friends-birthdays/
